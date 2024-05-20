@@ -1,4 +1,4 @@
 # My Favorite Movie
-**The Hangover**
-*God of Gamblers*
->Ted 2
+1. **The Hangover**
+2. *God of Gamblers*
+3. >Ted 2
