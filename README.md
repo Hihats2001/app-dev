@@ -2,5 +2,5 @@
 1. **The Hangover**
 2. *God of Gamblers*
 3. >Ted 2
-[My FB Account](facebook.com/katawanuh
-![alt text](Download.jpg)
+- [My FB Account](facebook.com/katawanuh
+
